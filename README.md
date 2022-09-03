@@ -1,6 +1,6 @@
 ### Hi, im Hernan De Andres! 👋
 
-After working 10 years in the supply chain and international trade and commerce industrie i returned to my first love, the tech industry. 
+After working 10 years in the supply chain and international trade and commerce industy i returned to my first love, the tech industry. 
 
 linkedin: https://www.linkedin.com/in/hernan-deandres/
 
